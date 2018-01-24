@@ -1,1 +1,1 @@
-# Darkness
+http://www.flyfire.net/2017/12/31/%E5%85%B3%E4%BA%8E%E5%A4%9C%E5%B9%95%E7%9A%84%E6%9E%84%E6%80%9D/
